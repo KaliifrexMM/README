@@ -16,7 +16,7 @@
 *do tell me when i said something innapropiate/offensive. i'm eager to learn and i'll change my ways!!*
  - > i might get distracted and go on pinterest (or other website) for hours and end up leaving you alone on ponytown, so my bad.. 😞
 
-## ˙✧˖°🪸 ༘ ⋆｡˚𓈒𓇼 ࣪ ⭒𓆡 ✶ ⋆' 🫧 ˖°🌊🎐𓇼⋆🦪₊🏖.ೃ࿔*:･°
+## ˙✧˖°🪸 ༘ ⋆｡˚𓈒𓇼 ࣪ ⭒𓆡 ✶ ⋆* 🫧 ˖°🌊𓇼⋆🦪₊🏖 ⋆.˚ 𓆝⋆.˚ 𓇼
 ![Screenshot_20240817-123948_Chrome](https://github.com/user-attachments/assets/1edd81fa-d023-4b7a-90f5-1e05149c5874)
 ## DNI (DO NOT BOTHER INTERACTING ME IF: .....) 
 - DNI IF YOU'RE RACIST, HOMOPHOBIC, A PROSHIPPER (especially any minor with sukuna and incest ships..), A GENUINE WEIRDO AND ETC. SHOO SHOO YOU CREEP😬!!
