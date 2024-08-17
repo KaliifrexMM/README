@@ -19,4 +19,4 @@
 ## ˙✧˖°🪸 ༘ ⋆｡˚𓈒𓇼 ࣪ ⭒𓆡 ✶ ⋆' 🫧 ˖°🌊🎐𓇼⋆🦪₊🏖.ೃ࿔*:･°
 ![Screenshot_20240817-123948_Chrome](https://github.com/user-attachments/assets/1edd81fa-d023-4b7a-90f5-1e05149c5874)
 ## DNI (DO NOT BOTHER INTERACTING ME IF: .....) 
-- DNI IF YOU'RE RACIST, HOMOPHOBIC, A PROSHIPPER (especially any minor with sukuna and incest ships..), A GENUINE WEIRDO AND ETC. SHOO SHOO 😬!!
+- DNI IF YOU'RE RACIST, HOMOPHOBIC, A PROSHIPPER (especially any minor with sukuna and incest ships..), A GENUINE WEIRDO AND ETC. SHOO SHOO YOU CREEP😬!!
