@@ -10,9 +10,13 @@
 ## things you should know before interacting me ✶⋆.˚->
 - when i spot you online, i will almost always interact first, either whispering you or chatting to you directly ^_^
 - when the conversation is dying i'll yap a ton of random stuff so i hope you don't mind.
-- my sense of humor is kind of wacky so if it's not something you like please tell!!
-do tell me when i said something innapropiate/offensive. i'm eager to learn and i'll change my ways!!
- - > i might get distracted and go on pinterest (or other website) for hours and end up leaving you alone on ponytown, so my bad 😞
+- my sense of humor (like brainrot; skibidi) is kind of wacky so if it's not something you like please tell!!
+- i am a fast typer so i hope you can understand the typos time to time!
+  
+*do tell me when i said something innapropiate/offensive. i'm eager to learn and i'll change my ways!!*
+ - > i might get distracted and go on pinterest (or other website) for hours and end up leaving you alone on ponytown, so my bad.. 😞
 
-## 🫧𓇼𓏲*ੈ✩‧₊˚🎐𓆝 𓆟 𓆞 𓆝 𓆟🪼⋆.ೃ࿔*:･𓆉⋆｡˚⋆❀ 🐚𓇼 ˖°
+## ˙✧˖°🪸 ༘ ⋆｡˚𓈒𓇼 ࣪ ⭒𓆡 ✶ ⋆' 🫧 ˖°🌊🎐𓇼⋆🦪₊🏖.ೃ࿔*:･°
 ![Screenshot_20240817-123948_Chrome](https://github.com/user-attachments/assets/1edd81fa-d023-4b7a-90f5-1e05149c5874)
+## DNI (DO NOT BOTHER INTERACTING ME IF: .....) 
+- DNI IF YOU'RE RACIST, HOMOPHOBIC, A PROSHIPPER (especially any minor with sukuna and incest ships..), A GENUINE WEIRDO AND ETC. SHOO SHOO 😬!!
