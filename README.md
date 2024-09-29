@@ -23,7 +23,7 @@
 ## ˙✧˖°🪸 ༘ ⋆｡˚𓈒𓇼 ࣪ ⭒𓆡 ✶ ⋆* 🫧 ˖°🌊𓇼⋆🦪₊🏖 ⋆.˚ 𓆝⋆.˚ 𓇼
 ![Screenshot_20240817-123948_Chrome](https://github.com/user-attachments/assets/1edd81fa-d023-4b7a-90f5-1e05149c5874)
 ## DNI (DO NOT BOTHER INTERACTING ME IF: .....) 
-- DNI IF YOU'RE RACIST, HOMOPHOBIC, A PROSHIPPER (especially any minor with sukuna and incest ships..), A GENUINE WEIRDO AND ETC. SHOO SHOO YOU CREEP😬!!
+- DNI IF YOU'RE RACIST, HOMOPHOBIC, A PROSHIPPER (especially any minor with sukuna and incest ships..), people who call me a a faggot in my strawpage like actually fuck off, A GENUINE WEIRDO AND ETC. SHOO SHOO YOU CREEP😬!!
 - > also don't roleplay with me suddenly unless we're close friends
 
 ## and that's about it! thanks for reading all the way here!
